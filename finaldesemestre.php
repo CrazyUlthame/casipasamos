@@ -1,2 +1,0 @@
-kajsdaskdhsa pasamos xDD
-conasa
